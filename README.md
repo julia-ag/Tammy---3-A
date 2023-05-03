@@ -1,2 +1,4 @@
-Tammy - 3° Série A
-Atividade de Manutenção de Jogos Digitais
+Tammy - 3ï¿½ Sï¿½rie A
+Atividade de Manutenï¿½ï¿½o de Jogos Digitais
+
+julia gobetti - 3ÂºA escrevi isso 11:11
